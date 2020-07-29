@@ -1,1 +1,1 @@
-＃-最新网站：https://www.purecc.vip/user
+＃-最新网站：https://www.purecc.cc/user
